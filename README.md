@@ -8,7 +8,7 @@
 
 ### 1922
 
-* [Kosmoglott 001](/Kosmoglott001.md)
+* [Kosmoglott 001](/Kosmoglott001.md) ([PDF](/Kosmoglott001.pdf))
 
 ## Cosmoglotta
 
