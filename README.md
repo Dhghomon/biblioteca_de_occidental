@@ -18,4 +18,14 @@
 
 ## Libres
 
+### Libres de aprension
+
+* [Salute, Jonathan!](https://en.wikibooks.org/wiki/Salute,_Jonathan!)
+
+### Litteratura
+
+* [Kinderseele](Kinderseele.md) de Hermann Hesse, traduction de Dave MacLeod
+
+### Pri Occidental/Interlingue
+
 * [Vocabularium Justificat del Lingue International](/Vocabularium%20Justificat%20del%20Lingue%20International.md) - Ric Berger
