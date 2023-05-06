@@ -306,6 +306,60 @@ es plu bon quam Espo **konuso** pro li derivates **con-ic**, **con-oid**, **con-
 
 ### CONOSSER.
 
- 
-
 Li radica Espo **koni** es necessi por traducter F. cône, E. cone, I.S. cono. Por F. connaître, li ver redica es **conosser**, quel permisse derivar **conossent**, **conossentie**. On ha proposit L. cognoscer, ma de Wahl fa remarcar que it ne plu existe paroles international con radica **cognosc**. In contrari, it existe un parol international **conossement**, quel on posse derivar regularimen de **conosser**.
+
+### CONTRA.
+
+Espo **kontraux** es arbitrari durante que **contra** es ja international, nam it retrova se in li derivates conosset **contrabanda**, **contrabasse**, **contradanse**, **contrapunte**.
+
+### CONVENER.
+
+Espo **tauxgi** es solmen germanic durante que **convener** es international e genite derivates natural: **convenentie**, **ínconvenent**, **ínconvenentie**, etc.
+
+### CORDIE,
+
+radica plu international quam Espo **koro**, nam li derivate **cordial** es D.E.F.I.S.P.
+
+### CUIDAR.
+
+Espo **sorgi** es solmen D. e vell dever scrir ze: **zorgi**. **Cuidar** es international e adapta se plu bon al stil de Occ.
+
+### CURAR,
+
+con un sol **r** ne deve esser scrit sub li forme **kuraci**, quam in Espo, proque it deve formar **cura-tion**, **cura-tor**, **pro-cura-tion**, **pro-cura-tor**.
+
+### CURRER,
+
+con du **r** es necessi por formar regularimen numerosi derivates. **Currer** genite in prim **currente**, **currida** (S. corrida), **con-current**, **con-current-ie**; poy mersí al regul de Wahl quel changea li ultim **r** a **s** li derivation posse continuar: **curs-ion, cursiv, curs-or, ex-curs-ion, ex-curs-ion-ist, in-cur-ion**, etc.
+
+### CUSTAR
+
+es adminim tam international quam Espo **kosti** (nam li son **u** trova se in F. e S.) e permisse prender li radica **cost** por li sense de F. **côte**. Si E. have **rib** (Espo ribo) it anc have **costal**, e to determina li maxim grand internationalitá de **cost**. (Couturat)
+
+### DAR,
+
+quel forma regularimen **da-t-ive** es usat vice Espo **doni**, e **dona-r** vice Espo **donaci** pro que it genite li international parol **dona-t-or**.
+
+### DEMARCHAR.
+
+Espo **klopod** es russ e polonesi e es scrit in ti lingues khlopot con li signification de penar. Pro que li altri national paroles have diversi significationes, li max bon solution es prender li francesi **demarchar**.
+
+### DEO.
+
+Espo **dio** es solmen I. Li derivates international **de-isme, de-ify, de-ifi-cation** monstra que li ver radica es **de-o**. Talmen, li radica **di-e** es líber por li dura de 24 hores.
+
+### DIABOL,
+
+vice Espo **diablo**, es li ver radica por obtener **diabolic, diabolic-men** (D. diabolisch, E. diabolic).
+
+### DIE.
+
+Espo **tago** es solmen D. **Die** es strax comprendet pro li dies del semane lunedí, mardí, etc. e li international parol **diurn**>
+
+### DIR
+
+(vide far).
+
+### DOLER,
+
+e ne Espo **dolori**, es li ver radica, nam it genite regularimen **dol-ent, índol-ent, condolentie** (G. Kondolenz), poy, per li suxife **-ore**, anc **dol-ore, dol-orosi, in-dol-or-at** (F. endolori).
