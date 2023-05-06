@@ -25,7 +25,12 @@
 ### Litteratura
 
 * [Kinderseele](Kinderseele.md) de Hermann Hesse, traduction de Dave MacLeod
+* [Du anecdotes de Kleist](/Du_anecdotes_de_Kleist.md)
 
 ### Pri Occidental/Interlingue
 
 * [Vocabularium Justificat del Lingue International](/Vocabularium%20Justificat%20del%20Lingue%20International.md) - Ric Berger
+
+### Pri Occidental/Interlingue in altri lingues
+
+* 

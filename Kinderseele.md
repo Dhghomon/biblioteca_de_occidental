@@ -7,11 +7,10 @@
 
 Scrit in 1919 sub li pseudonim
 Emil Sinclair
-Q
-        uelcvez noi acte, noi ea ci o ta, fa
-        to-ci e to-ta, e omnicos es levi, sin
-        sucie e tam nonligant, que
-        omnicos sembla posser esser anc
+
+Quelcvez noi acte, noi ea ci o ta, fa to-ci e 
+to-ta, e omnicos es levi, sin sucie e tam nonligant, 
+que omnicos sembla posser esser anc
 diferent. E quelcvez, in altri hores, necos
 posse esser diferent, necos es nonligant e
 levi, e chascun de nor respirationes es
