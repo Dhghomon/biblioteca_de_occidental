@@ -23,3 +23,5 @@ Un vez, du vezes in li die yo es incontrat de habitantes ex mi dom, quande yo su
 Esque vu nequande havet li idé, quant mult abandonat féminas surti in tal maniere e nequi atente les?Li vive circum ili ne existe por les, estalages ne brillia por les, nequi expecta les, ma ili támen vive quasi in li extremitá de omni evenimentes, quam lor ombre. Or támen omnicos, quo eveni, tucha les tam quam tis, qui trinca li vive per lor plen boccas. Ma detra ili trova se alquo pesant quasi un dolore, pri quel nequi save alquo plu, li tot vive ruinat, pri quel on ne parla plu.
 
 "Ti old seniora ex li terr-etage," on usualmen di pri me, "surti por far compras."
+
+Ma un die li dom-administratora remarcat li date de mi nascentie e ella frappat su manus junt.
