@@ -24,8 +24,9 @@
 
 ### Litteratura
 
-* [Kinderseele](Kinderseele.md) de Hermann Hesse, traduction de Dave MacLeod
 * [Du anecdotes de Kleist](/Du_anecdotes_de_Kleist.md)
+* [Kinderseele](Kinderseele.md) de Hermann Hesse, traduction de Dave MacLeod
+* [Li Matre Parla](/Li_matre_parla.md)
 
 ### Pri Occidental/Interlingue
 
