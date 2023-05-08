@@ -25,3 +25,19 @@ Esque vu nequande havet li idé, quant mult abandonat féminas surti in tal mani
 "Ti old seniora ex li terr-etage," on usualmen di pri me, "surti por far compras."
 
 Ma un die li dom-administratora remarcat li date de mi nascentie e ella frappat su manus junt.
+
+"Vu es realmen tot yun! Ma de u vor capilles blanc?"
+
+"It es caus mult coses, seniora! E yun yo ne es. Yo pensa quelcvez, que yo have ja mill annus."
+
+Tande ella comensat rider e in sam témpor ella regardat íncert e trist, quam si ella vell compatir me. Ma proquó compatir? Mi vive ne ha esset sempre tal, qual it es nu. In anteyan témpor it esset mem tre bell. Noi vivet bon, yo e mi marito, noi vivet felici, quande nor infante hat nascet.
+
+Certmen in ti eveniment on trova necos extraordinari, esque ne ver, tal aferes experi ya milles de homes in lor vive. E yo presc time, que vu ne va notar un raconta tam ordinari. Ples esser, yo peti vos, tolerant un moment ancor.
+
+Li guerre hat arivat. Anc to es comprensibilmen nequó special, noi omni ha pervivet it e noi omni save mem tro bon, qual it esset. Ma esque it ne sembla vos, que it absolutmen ne sufice: li guerre? It es solmen un parol, quelc sones, queles ne mem aproximativmen posse expresser quant horrore it contene. It ne es li rect parol, yo opine, it es tro moll, it vell dever strider, bruir, it vell dever far sentir dolore, it vell dever odorar quam pulvere e siccat sangue - e tande it vell esser ancor necos in comparation con li realitá.
+
+In ti guerre mi marito partiprendet li combatte. Ne con li arme in su manu; to ne esset possibil che noi. Il esset arestat e condamnat al morte pro activitá subversiv. E yo stat abandonat con mi infante.
+
+It es necessi, que vu capi du coses: li horrore e pesantie del parol guerre, quande omni homal actiones perdi lor sense, quande li morte sedenta se con li viventes al comun table, e quam contrarie li charme e delicatesse del infante, qui in su dorme tene su litt puniettes conpresset, quam si it vell voler capter li fugitiv somnie.
+
+It es necessi, que vu justmen descri, lass nos dir, li scene tam quam sequent: Li sole jetta su luce sur li pedvia in li parc e li infante gambea in li medie, il brui e siffla movente du litt brasses quam un piston. Qui di, que it es passage in li parc, u on excava fosses protectional e u vade homes fatigat, regardant vers li suol? It es ya un tren e it avansa sur li reles, it es un splendid aventura e li munde es bell pro que tu posse changear it per un sol move del ocules.
