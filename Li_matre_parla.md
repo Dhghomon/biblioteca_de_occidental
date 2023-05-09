@@ -41,3 +41,15 @@ In ti guerre mi marito partiprendet li combatte. Ne con li arme in su manu; to n
 It es necessi, que vu capi du coses: li horrore e pesantie del parol guerre, quande omni homal actiones perdi lor sense, quande li morte sedenta se con li viventes al comun table, e quam contrarie li charme e delicatesse del infante, qui in su dorme tene su litt puniettes conpresset, quam si it vell voler capter li fugitiv somnie.
 
 It es necessi, que vu justmen descri, lass nos dir, li scene tam quam sequent: Li sole jetta su luce sur li pedvia in li parc e li infante gambea in li medie, il brui e siffla movente du litt brasses quam un piston. Qui di, que it es passage in li parc, u on excava fosses protectional e u vade homes fatigat, regardant vers li suol? It es ya un tren e it avansa sur li reles, it es un splendid aventura e li munde es bell pro que tu posse changear it per un sol move del ocules.
+
+E poy, quande il prende su cavallette, quel have su cape deruptet! Li pezze de ligne es in ti moment reviventat; sur su crup cavalca un litt puer; il agita su capillat capette-bulette, ma il absolutmen ne aspira representar un delicato, il es un fort mann, il es un cavalliero, il galopa sur vias e non-vias, il salta trans barrages. Nequande ti cavalcada va trovar su fine. E just in ti moment il es lurat de un sparro avan li fenestre, e li cavallette cade sur li suol, it es ya un ínutil objecte sin vive. Ta avan li fenestre trova se un sparro chiripant! Tande li micri nase adhere aplatat al vitre e astona se: "Proquó it ne atendet til nu? Proquó it agitat su caudette? E quo di li sparro, si it ne save parlar?"
+
+Pos poc témpor denov un colorosi balle es mult plu bell quam li sparro; nequó posse far se equivalent a su bellitá, durante que it salta up alt til li ciel e poy reveni e tam risibilmen batte li suol che te.
+
+E ínterim li adultes passa preter proclamationes significant li guerre, li tormente e li morte.
+
+E li grass fingrette jace in un libre, it repte sur li págines printat, it mispassua avan images, queles es tam bell: gente in autos, un cochero con li knut, un vapor-nave sur li fluvie... E poy it ne plu es un fingrette, it es un litt cheminé-scrappator e il climba un scale, un-du, un-du.
+
+"Mama, ú li scrappator de cheminés ea por dormir? E qui extinte li astres? Esque li sole es plu grand quam mi platilette?"
+
+Omni infantes es bell e bellissim, quande ili es in li moment del indormida; ili cade profund in somnies quam in li cussinettes e durante que lor fatigat ocules solmen se clude, sur li boccas de ili ja vaga un subrise; poy li cavallette sin su cap, li balle e li sparro sedenta se sur li lett-látere e ili dura viver pro que li bellitá de ti ci munde fini nequande.
