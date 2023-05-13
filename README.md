@@ -26,7 +26,7 @@
 
 * [Du anecdotes de Kleist](/Du_anecdotes_de_Kleist.md)
 * [Kinderseele](Kinderseele.md) de Hermann Hesse, traduction de Dave MacLeod
-* [Li Matre Parla](/Li_matre_parla.md)
+* [Li Matre Parla](/Li_matre_parla.md) ([PDF](https://github.com/occidental-lang/occidental-lang.github.io/blob/master/resources/Li_matre_parla.pdf))
 
 ### Pri Occidental/Interlingue
 
