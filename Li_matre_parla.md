@@ -61,3 +61,50 @@ Mi litt puer... No, yo ne va plorar, ples ne timer, solmen mi voce es trement; l
 To ci vu deve anc descrir just e precismen. It esset un ínconsolativ nud region e un solitari via ductet along li reles; sur it jacet mudde siccat. E in it trampla gambettes de infantes; super ili on vide li nebulat ciel e necos move in li circumitá; ni un folie ne treme; to es tro horribil, mem li vente es ahontat e li árbores sta sit moventie; si ili ne vell har possedet lor radicas incresset profundmen in li terre, ili certmen vell har fugit pro horrore. Li tot region es silent, ínmobil, terribil, quam un fantom, it mem ne spira. Solmen ti procession avansa, litt infantes queles hat videt ja tro mult horribil coses. Ili avansa sin criada pro que ili ne comprende to, quo eveni; ili avansa, li tot procession, quam si ili vell ear hem veniente ex li scola e ili tene un altru decentmen ye li manus. E tis, qui garda, clapota per lor sapates subforjat. Quasi in tal maniere ples notar to e ples dir: ili marchat por esser mortat, ti infantes.
 
 Yo remarcat les durante que on transportat me junt con altri féminas in li trelliat vagones along li ínfinit long via al loc del morte, quel ili nominat li loc del destination. It esset un via cruelmen dur, noi sentit sete e fame, alcunes ex noi hat morit, ma li max grand dolore esset causat per que on hat forprendet nor infantes. Ti íncertitá esset horribilissim; quo on va far con ili? Esque on va prender les con se? On va cluder les in orfan-asiles e on certmen va punir les in un rigorosi maniere. To esset cruel, ma sub omnicos noi trovat alquel consolation: omni to es suportabil, it resta li cose cardinal, que li infantes va viver. Noi self ne importa plu...
+
+Poy along li relvia passat li procession del infantes, it avansat silent preterpassante li transport, quel haltat ci ja un tam long témpor, it marchat decent e silent sur li via, in li fine de quel cheminés fumat.
+
+Quande noi stat conpresset apu li trelliat micri fenestre, yo remarcat ti infantes, e adplu yo hat remarcat anc mi infante. Mi filietto! yo ha exclamat e in li ultim reflexe del conscientie yo videt qualmen il tornat se, quam si il vell har audit, ma just tande yo esset forpussat del fenestre per li céteri féminas; anc ili desirat spectar e noi omni ja esset tot dement. Yo jacet sur li suol del vagon e on pedpresset me, yo esset conscient pri necos plu, absolutmen nullcos. Ma poy ex li vagones sonat subitmen un lamentation tam horrorosi, que on comandat avansar li transporte; ti plora del matres fluteat quam un fluvie e it ne posset esser stoppat ni per insultationes, ni per batt-colpes e mem ni per tirada.
+
+Poy li féminas comensat denov consolar unaltru (nam it existe un cose, quel have null fine, a saver li espera), que proprimen ili ne esset nor infantes. Mem yo ne posset, on dit, reconosser mi infante pro que it simplicmen ne trovat se ta; tal hasardes ne ocasiona. Ili esset ne nor infantes, it ne posset esser ili, nam on va tractar les plu bon, on va colocar les in asiles por orfanes, ma on va lassar les viver.
+
+No, ili ne es nor infantes, repetit li féminas, ili es infantes tot alien.
+
+Ma qualmen comprender to: alien? Nor cordies ya esset ruptet pro ili.
+
+Talmen dunc in tal procession marchat mi litt filietto, li rosi puerette, mi car subrisor, qui cuidat u li astres ea por dormir. E si it ne esset il, it esset un altri tal. Ma li morte esset egal por omni, li morte del infantes ductet in procession, del infantes, de queles fingres del ped es salient tra li fores de lor strumpes, qui essuya per palmes lor sordidat nasettes e have lor fin capilles quam nestes de sparros. Existe vermen paroles, queles vell justmen expresser ti ci horrore? Esque on posse realmen notar scriente to, quo in ti moment sentit li matres?
+
+Lu max grand mal esset, que yo restat vivent, que yo ne posset morir, malgré que mi cordie ja stoppat desde long témpor. Li morte forsan ne posset pro honte regardar vers mi facie e dunc yo sempre restat vivent e yo retrovenit ex omni to a mi hem. Ma mi filietto ne ha revenit.
+
+Vi, to es mi tot historie: yo videt mi propri infante marchar por esser mortat.
+
+In li guerre it es ya fate, in li guerre mem li infantes combatte. Talmen dit alqui in li reunion. Ma to ne es ver, li infantes ne combatte, li infantes solmen suffre. Nam li combattentes in li guerre es sempre poc, ma li victimes es abundant e li suffrentie es sin fine.
+
+Proquó yo narra to a vu? Proquó yo vole, que vi mey notar ti horrorosi historie, etsí li gente certmen va sospirar, que ili just hodie vell preferer leer seren historiettes pri amore e bell objectes?
+
+Pro que on parla pri un novi guerre.
+
+In mi solitá certmen li guerre ne posse rupter necos plu, in mi vacuitá it ne posse furter necos. Ma on trova támen féminas, de queles li infantes vive e avigila se con li sam ridette quam mi filietto e ili indormi egalmen fatigat, have simil ludettes, e lor frontes es ventolat per li brise de somnies infantin.
+
+Por ti omni ples scrir, que yo vigila. Por que anc ellas mey vigilar. Que ínterim, durante que on parla pri li guerre e acutisa armes, yo pensa solmen pri li criada del infantes marchant por esser mortat. Por que anc ellas mey pensar pri to. E si yo ea tra li parc, yo ne vide li infantes, queles lude ta, ma tis queles perdit lor vive in li guerre. Ti processiones de astonat condamnates al morte, queles sur li sill del morte questiona, ca li sole es tam grand quam lor platilettes.
+
+Yo escuta atentivmen, quo di li potentes pri li guerre. Yo, li matre, qui have mill annus, es trapicat per milles de dolores. Nequí posse summar li tombes de omni mi infantes, pro que omni ti mortates esset mi infantes. E nequí posse rendir me ti infante ex ili, qui presset se ad me per su rondetti manuettes.
+
+Li guerre? No, su existentie ne es plu possibil, li passus del infantes, queles marchat por esser mortat, tambura alerme: it posse esser null guerre!
+
+Mi nómin es Maria, mi nómin es Catharina, mi nómin es Ráchel, mi nómin es Pénelopé. Yo have mill nómines e yo es li eterni matri del munde universal.
+
+On parla pri li guerre, ma yo ne audi lor parlada. Yo audi li babillada de infantes e yo audi li criada de mortates.
+
+Yo extende mi brasses, ples regardar vers me, yo extende mi brasses por impedir omni ti horrore. Yo va impedir it. E in casu de necessitá yo va adpresser mi old manus, queles nequande plu va caressar un infante, yo va adpresser les al gútter de tis, qui parla pri li guerre.
+
+
+- o - o -
+
+++++++++++
+
+## Interlingue Institute Nederland
+
+## Groningen
+
+## Bibliothéque La Chaux-de-Fonds
