@@ -99,12 +99,12 @@ On parla pri li guerre, ma yo ne audi lor parlada. Yo audi li babillada de infan
 Yo extende mi brasses, ples regardar vers me, yo extende mi brasses por impedir omni ti horrore. Yo va impedir it. E in casu de necessitá yo va adpresser mi old manus, queles nequande plu va caressar un infante, yo va adpresser les al gútter de tis, qui parla pri li guerre.
 
 
-- o - o -
+## - o - o -
 
-++++++++++
+## ++++++++++
 
-## Interlingue Institute Nederland
+**Interlingue Institute Nederland**
 
-## Groningen
+**Groningen**
 
-## Bibliothéque La Chaux-de-Fonds
+**Bibliothéque La Chaux-de-Fonds**
