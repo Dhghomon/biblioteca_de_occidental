@@ -363,3 +363,24 @@ Espo **tago** es solmen D. **Die** es strax comprendet pro li dies del semane lu
 ### DOLER,
 
 e ne Espo **dolori**, es li ver radica, nam it genite regularimen **dol-ent, índol-ent, condolentie** (G. Kondolenz), poy, per li suxife **-ore**, anc **dol-ore, dol-orosi, in-dol-or-at** (F. endolori).
+
+### DUBITAR.
+
+Li ver radica es **dúbit** (L. dubitare) e ne **dub**, quam it es in Espo. Dúbit es necessi por retrovar li international derivates **dubit-abil**, e **ín-dubit-abil**.
+
+### DUCTER,
+
+vice li radica Espo **konduki**, es absolut necessi por formar regularimen un triantene de derivates ja international queles Espo e Ido deve adopter quam **nov** radicas pro manca del ver punctu de departe, por exemple: **duct-ibil-itá, in-duct-ion, de-duct-ion, pro-duct-ion, pro-duct-or, intro-duct-ion, re-duct-ion, ab-duct-ion**, etc.
+
+### DUPAR.
+
+Espo **trompi** atinge solmen F. e E., ma **dupar** es plu international e atinge anc F. quel have duper.
+
+### DURANTE.
+
+Quande li lingues es tam remarcabilmen concordant: D. während, E. during, F. durant, I.S.P. durante, it es íncomprensibil que Espo prefere li parol latin dum!
+
+
+### E
+
+es tre international contra que Espo **kaj** atinge solmen tis qui save grec. (In grec modern it es pronunciat: kyé)
