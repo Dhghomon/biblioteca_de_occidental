@@ -383,4 +383,24 @@ Quande li lingues es tam remarcabilmen concordant: D. während, E. during, F. du
 
 ### E
 
-es tre international contra que Espo **kaj** atinge solmen tis qui save grec. (In grec modern it es pronunciat: kyé)
+es tre international contra que Espo **kaj** atinge solmen tis qui save grec. (In grec modern it es pronunciat: kyé) Li parol **kaj** duplica presc li númere del **k** e **j** ja tro numerosi in Espo. Couturat fat remarcar que li traduction del Bible in Espo havet adminim un avantage, to esset monstrar clarmen quant li usation de **kaj** es íntolerabil.
+
+### EAR.
+
+Un parol international por F. aller ne existe. Latino sine flexione prendet ex L. (eo, ii, itum, ire) li radica **i** quel es tro curt; Espo usa li forme **iri** e talmen falsmen transporta li finale del infinitive a omni témpores. **Andar(e)** es solmen H.I. e ne es apt por composition. **Vader** ne coresponde al sense del derivates: **invasion** ne es intrada, **evasion** es altricos quam surtida. In manca de plu bon, De Wahl prendet ex L. li radica **ea** quel supervive ancor in su forme original in F. exeat.
+
+### EDIFICAR
+
+es plu bon quam Espo **edifi**, pro li paroles international **edificar** e **edification** (E.F.I.S.P.)
+
+### ES-QUE.
+
+Espo **chu** es un parol inventet e íncomprensibil. **Es-que** es adminim F. e suggeste li interrogation al romanic populer per li du paroles **que, es**, in li forme interrogativ.
+
+### ESSER.
+
+Espo **esti** ne es bon. Li líttere **t** totmen ne apartene al radica, ma es simplicmen li signe del triesim person. Secun li linguistes (vide A. Meillet, Introduction al studie comparat del lingues indo-europan), li ver radica del verbe es **es**. Li **ti** es contrari al etimologie e choca tam plu li filologos que in Espo on adjunte ancor un altri verbal finale: -as, -is, -os, quel duplica li desinentie.
+
+### EX,
+
+parol tot international, contra que Espo **el** es solmen un special forme de **ex** quande ti-ci precede un l (exemple: ellaborar). Un derivate quam **ex-puls-ion** es strax comprensibil durante que Espo **el-pel-o** es un enigma por omnes.
