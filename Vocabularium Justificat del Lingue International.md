@@ -404,3 +404,39 @@ Espo **esti** ne es bon. Li líttere **t** totmen ne apartene al radica, ma es s
 ### EX,
 
 parol tot international, contra que Espo **el** es solmen un special forme de **ex** quande ti-ci precede un l (exemple: ellaborar). Un derivate quam **ex-puls-ion** es strax comprensibil durante que Espo **el-pel-o** es un enigma por omnes.
+
+### FAR,
+
+quam **dir**, es acurtat modern formes corespondent al latin facere e dicere tro pesant por paroles tam frequent. Ti formes modern genite tam regulari derivates quam li latines. On mey remarcar que li verbes Espo **fari** e **diri** es fals, proque li **r**, quel apartene solmen al infinitive, apari in omni témpores.
+
+### FARINE.
+
+It es ínexplicabil que Espo deforma ti parol a faruno. Forsan por evitar li aspecte de un feminin? Ma **faro** in Espo es un action e ne un ente!
+
+### FELICI.
+
+Null necessitá transformar li **c** a **ch** quam fa Espo, in quel li son **ch** es ja tro abundant.
+
+### FÉMINA.
+
+It serve a nequó economisar ti international radica formant **vir-ino** (= mann feminin!), nam on ne posse dispensar it por formar **femin-isme** e **femin-ist**.
+
+### FERIE.
+
+Espo **foiro** es un francisme. Li ver radica international es **ferie** venient de L. feria (F. férié, E. fair, I. fiera, S. feria).
+
+### FIL.
+
+Espo **fadeno** es solmen D., durante que fil es international e genite **fil-ar, fil-ator, fil-ator-ia**, derivates natural e regulari. Ma in Espo **filo** es prendet por D. Sohn, F. fils, quo es un altri grav erra, nam por ti sense **filie** es plu bon pro li derivates: **fili-al, fili-ale, a-fili-ar, fili-ation**. Quande on selecte li bon radicas, omnicos reveni in órdine!
+
+### FORSAN.
+
+L. fortasse, forsitan, forsan, I. forse, S.P. talvez, pode ser; F. peut-être, Ru. poate; E. perhaps; D. vielleicht; Holl. misschien; Sv. kanske, Nor. kanskje; Dan. maaske; R. mozet byt. In plur lingues ti forme significa "it posse esser, possibil". Ma un tal metode sembla me tro long, e ultra to on ne posse dir "forsan it es possibil". Dunc sembla esser usabil solmen li curt forme latin (secun Diez li forme fundamental es **forsan**). I. forse ne vell esser apt in Occ. pro li confusion auditiv inter forse e fortie, quo on deve evitar. **Forsan** es li sol forme usabil e adplu filologicmen justificat. (E. de Wahl)
+
+### FOX.
+
+Durante que Espo **vulpo** es solmen I., **fox** atinge D.E.Hj., dunc plu mult homes, e es comprensibil partú per li parol **fox-trott*.
+
+### FOY.
+
+It es desfacil trovar un radica international. Espo **fajro** es li deformat anglesi parol **fire**. **Foy** sembla plu bon pro li derivate **foyere**. (I. fuoco, S. fuego)
