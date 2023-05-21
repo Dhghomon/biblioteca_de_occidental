@@ -364,12 +364,87 @@ vocavit nomen eius  nominat le
 Iesum.  Jesus.
 
 2
-1 Cum autem natus esset Iesus in Bethlehem Iudaeae in diebus Herodis regis, ecce Magi ab oriente venerunt Hierosolymam
-2 dicentes: “ Ubi est, qui natus est, rex Iudaeorum? Vidimus enim stellam eius in oriente et venimus adorare eum ”.
-3 Audiens autem Herodes rex turbatus est et omnis Hierosolyma cum illo;
-4 et congregans omnes principes sacerdotum et scribas populi, sciscitabatur ab eis ubi Christus nasceretur.
-5 At illi dixerunt ei: “ In Bethlehem Iudaeae. Sic enim scriptum est per prophetam:
-6 "Et tu, Bethlehem terra Iudae,
+
+2:1
+
+Cum autem   E quande
+natus esset nascet
+Iesus   Jesus
+in  in
+Bethlehem   Bethlehem
+Iudaeae de Judea
+in  in
+diebus  li dies
+Herodis de Herodes
+regis,  li rey,
+ecce    vi
+Magi    Mages
+ab  del
+oriente oriente
+venerunt    qui venit
+Hierosolymam    a Jerusalem
+
+2:2
+
+dicentes:   diente:
+“Ubi    “U
+est,    es
+qui ti qui
+natus est,  nascet,
+rex li rey
+Iudaeorum?  del Judéos?
+Vidimus enim    Nam noi ha videt
+stellam eius    su stella
+in  in
+oriente li oriente
+et  e
+venimus ha venit
+adorare eum”.   por adorar le”.
+
+2:3
+
+Audiens autem   Ma audiente to,
+Herodes Herodes
+rex li rey
+turbatus est    esset turbat
+et  e
+omnis   li tot
+Hierosolyma Jerusalem
+cum con
+illo;   le;
+
+2:4
+
+et  e
+congregans  congregante
+omnes   omni
+principes   principales
+sacerdotum  del sacerdotes
+et  e
+scribas scritores
+populi, del popul,
+sciscitabatur   il interrogat
+ab  de
+eis ili
+ubi u
+Christus    Cristo
+nasceretur. nascet.
+
+2:5
+
+At  E
+illi    ili
+dixerunt    dit
+ei: le:
+“In “In
+Bethlehem   Bethlehem
+Iudaeae.    de Judea.
+Sic enim    Nam talmen
+scriptum est    it es scrit
+per per 
+prophetam:  li profete:
+
+2:6 "Et tu, Bethlehem terra Iudae,
 nequaquam minima es in principibus Iudae;
 ex te enim exiet dux,
 qui reget populum meum Israel" ”.
