@@ -444,10 +444,25 @@ scriptum est    it es scrit
 per per 
 prophetam:  li profete:
 
-2:6 "Et tu, Bethlehem terra Iudae,
-nequaquam minima es in principibus Iudae;
-ex te enim exiet dux,
-qui reget populum meum Israel" ”.
+2:6
+
+"Et "E
+tu, tu,
+Bethlehem   Bethlehem
+terra   terre
+Iudae,  de Juda,
+nequaquam   in null manuere
+minima es   es lu minimum
+in principibus  del reyentes
+Iudae;  de Juda,
+ex te enim  nam ex te
+exiet   va exear
+dux,    un ductor,
+qui qui
+reget   va reyer
+populum meum    mi popul
+Israel" ”.  Israel" ”.
+
 7 Tunc Herodes, clam vocatis Magis, diligenter didicit ab eis tempus stellae, quae apparuit eis;
 8 et mittens illos in Bethlehem dixit: “ Ite et interrogate diligenter de puero; et cum inveneritis, renuntiate mihi, ut et ego veniens adorem eum ”.
 9 Qui cum audissent regem, abierunt. Et ecce stella, quam viderant in oriente, antecedebat eos, usque dum veniens staret supra, ubi erat puer.
