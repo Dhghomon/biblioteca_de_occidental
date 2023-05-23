@@ -463,9 +463,72 @@ reget   va reyer
 populum meum    mi popul
 Israel" ”.  Israel" ”.
 
-7 Tunc Herodes, clam vocatis Magis, diligenter didicit ab eis tempus stellae, quae apparuit eis;
-8 et mittens illos in Bethlehem dixit: “ Ite et interrogate diligenter de puero; et cum inveneritis, renuntiate mihi, ut et ego veniens adorem eum ”.
-9 Qui cum audissent regem, abierunt. Et ecce stella, quam viderant in oriente, antecedebat eos, usque dum veniens staret supra, ubi erat puer.
+2:7
+
+Tunc    Tande
+Herodes,    Herodes,
+clam    secretmen
+vocatis vocante
+Magis,  Mages,
+diligenter  diligentmen
+didicit aprendet
+ab  de
+eis ili
+tempus  li témpore
+stellae,    del stelle,
+quae    in quel
+apparuit    it aparit
+eis;    a les;
+
+2:8 
+
+et  e
+mittens missente
+illos   les
+in  a
+Bethlehem    Bethlehem
+dixit:  dit:
+“ Ite   “ Ea
+et  e
+interrogate interroga
+diligenter  diligentmen
+de  pri
+puero;  li púer;
+et  e
+cum quande
+inveneritis,    vu decovri
+renuntiate  rapporta
+mihi,   a me,
+ut   por que
+et  anc
+ego  yo
+veniens veniente
+adorem  mey adorar
+eum ”.  le ”.
+
+2:9
+
+Qui cum Quande
+audissent   ili audit
+regem,  li rey,
+abierunt.   ili exeat.
+Et  E
+ecce    vi
+stella, li stelle,
+quam    quel
+viderant    ili videt
+in  in
+oriente,    li oriente,
+antecedebat precedet
+eos,    les,
+usque   til quande
+dum veniens a lor advente
+staret  it stat
+supra,  supra,
+ubi u
+erat    esset
+puer.   li púer.
+
 10 Videntes autem stellam gavisi sunt gaudio magno valde.
 11 Et intrantes domum viderunt puerum cum Maria matre eius, et procidentes adoraverunt eum; et apertis thesauris suis, obtulerunt ei munera, aurum et tus et myrrham.
 12 Et responso accepto in somnis, ne redirent ad Herodem, per aliam viam reversi sunt in regionem suam.
